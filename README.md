@@ -3,7 +3,7 @@
 ![My Image](https://i.postimg.cc/WzXkNdSw/Untitled119-20250908155328.png)
 
 
-✚◞ I block freely, I very rarely int first.. ૮( ´ ꒳ `)ა 
+✚◞ I very rarely int first due to anxiety...૮( ´ ꒳ `)ა 
 
              all drawings fc 2 @raygun_www on tiktok  !! 
 I
