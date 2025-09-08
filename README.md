@@ -11,7 +11,5 @@ I luhv LUHVVV wenclair ﾒ✚ do interact with me id love too make new friends w
 ◞
 ✚ﾒ◞          +DNI LIST+
     proshippers' weirdos in general' if you consistently use slurs' lolis' 
-  
-    20+ strictly sorry... (im 16) i              block very freely+ 
- 
- if i feel uncomfortable with you or weirded out i will block you blehh'
+    20+ strictly sorry... (im 16) i          block very freely+ 
+  if i feel uncomfortable with you or weirded out i will block you blehh'
