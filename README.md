@@ -1,6 +1,6 @@
 ✚◞ "if I wolfed out and could never change back, would you come and find me?. ? ﾒ𖹭
  ︶ ︶︶
-![Funny Gif](https://i.postimg.cc/BnnDtBK9/Tumblr-l-375695116930546.gif)
+![My image]https://i.postimg.cc/WzXkNdSw/Untitled119-20250908155328.png
 
 ✚◞ I block freely, I very rarely int first.. ૮( ´ ꒳ `)ა
 
