@@ -8,4 +8,4 @@
             Zz all drawings fc 2 @raygun_www on tiktok  !! 
 I
 I luhv LUHVVV wenclair ﾒ✚ do interact with me id love too make new friends wahhaa >.<
-[![spotify-github-profile]
+
