@@ -3,6 +3,8 @@
 ![My Image](https://i.postimg.cc/WzXkNdSw/Untitled119-20250908155328.png)
 
 
-✚◞ I block freely, I very rarely int first.. ૮( ´ ꒳ `)ა
+✚◞ I block freely, I very rarely int first.. ૮( ´ ꒳ `)ა 
 
-            Zz I luhv LUHV wenclair !! 
+            Zz all drawings fc 2 @raygun_www on tiktok  !! 
+I
+I luhv LUHVVV wenclair ﾒ✚ do interact with me id love too make new friends wahhaa >.<
