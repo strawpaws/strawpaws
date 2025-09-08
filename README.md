@@ -8,4 +8,4 @@
              all drawings fc 2 @raygun_www on tiktok  !! 
 I
 I luhv LUHVVV wenclair ﾒ✚ do interact with me id love too make new friends wahhaa >.<
-◞ [[https://github.com/kittinan/spotify-github-profile][https://spotify-github-profile.kittinanx.com/api/view.svg?uid=31h2oxcakzrsylfusd5gsgblhgxe&cover_image=false&theme=natemoo-re&show_offline=false&background_color=ffffff&interchange=false&bar_color=ffffff&bar_color_cover=false)]]
+◞ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31h2oxcakzrsylfusd5gsgblhgxe&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
