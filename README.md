@@ -16,7 +16,7 @@
 
 ✚◞ I very rarely int first due to anxiety...૮( ´ ꒳ `)ა 
 
-       pstt... artist @bananabedside twt
+  pstt... artist bananabedside twt
 I
 I luhv LUHVVV wenclair ﾒ✚ do interact with me id love too make new friends wahhaa >.<
 ◞
