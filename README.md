@@ -29,7 +29,7 @@ I luhv LUHVVV wenclair ﾒ✚ do interact with me id love too make new friends w
   <img src="https://i.postimg.cc/J7ZDrkX1/IMG-9956.gif" alt="GIF 2" width="50">
   
    ![Fun GIF](https://i.postimg.cc/bJxrL0y3/7ac39dce.gif)
-   [✚◞ata](https://strawpawsie.atabook.org)
+  <p align="center"> [✚◞ata](https://strawpawsie.atabook.org)
 
 
 
