@@ -1,4 +1,5 @@
 ![Cool GIF](https://i.postimg.cc/bJxrL0y3/7ac39dce.gif)
+![Fun GIF](https://i.postimg.cc/bJxrL0y3/7ac39dce.gif)
 
 ✚◞ "if I wolfed out and could never change back, would you come and find me?. ? ﾒ𖹭
  ︶ ︶︶
