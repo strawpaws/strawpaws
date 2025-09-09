@@ -30,7 +30,7 @@ I luhv LUHVVV wenclair ﾒ✚ do interact with me id love too make new friends w
   
    ![Fun GIF](https://i.postimg.cc/bJxrL0y3/7ac39dce.gif)
    Zz [✚◞ata](https://strawpawsie.atabook.org)
- pretty please sign meh ata!! >.<
+ pretty please sign meh ata!!>.<
 
 
 
