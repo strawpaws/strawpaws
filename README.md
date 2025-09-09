@@ -24,11 +24,10 @@ I luhv LUHVVV wenclair ﾒ✚ do interact with me id love too make new friends w
     <p align="center">proshippers' weirdos in general' if you consistently use slurs' lolis' 
     20+ strictly sorry... (im 16) i          block very freely+ 
   if i feel uncomfortable with you or weirded out i will block you blehh'
- 
-  <p align="center">
-  <img src="https://i.postimg.cc/CK2B1CJK/IMG-3033.gif" alt="GIF 1" width="400">
-  <img src="https://i.postimg.cc/J7ZDrkX1/IMG-9956.gif" alt="GIF 2" width="400">
-</p>
+ <p align="center">
+  <img src="https://i.postimg.cc/CK2B1CJK/IMG-3033.gif" alt="GIF 1" width="120">
+  <img src="https://i.postimg.cc/J7ZDrkX1/IMG-9956.gif" alt="GIF 2" width="
+
 
 
   
