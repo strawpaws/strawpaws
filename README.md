@@ -2,9 +2,6 @@
 <p align="center">
   <img src="https://i.postimg.cc/5yXGbgXm/B07-DA999-EA16-4-B3-C-BD88-0055-BA277710.gif" alt="" width="
 
-
-
-
 𐂯◞ "if I wolfed out and could never change back, would you come and find me?. ? ﾒ𖹭
  ︶ ︶︶
 <p align="center">
