@@ -15,8 +15,9 @@
 · INFP+INTJ. 𐂯 .ᐟ◞ 
 <p align="center"> ..16.. ◞ ..lesbian.. 
 <p align="center">
-  <img src="https://i.postimg.cc/Znx2gk1H/Tumblr-l-923297564503109.gif" alt="" width="35">
-</p>
+  <img src="https://i.postimg.cc/Znx2gk1H/Tumblr-l-923297564503109.gif" alt="" width="40">
+</p> please sign my [✚◞ata](https://strawpawsie.atabook.org)
+
 
 
 
