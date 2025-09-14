@@ -4,6 +4,11 @@
 
 <p align="center">🐾𐂯◞ 20+.. DNI ´ཀ`
 
+<p align="center">
+  <img src="https://i.postimg.cc/GtP24NGs/Tumblr-l-919367539459567.png" alt="">
+</p>
+
+
 
 
 
