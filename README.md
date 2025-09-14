@@ -2,7 +2,7 @@
   <img src="https://i.postimg.cc/hj8GZ6vP/Tumblr-l-920578204507639.gif" alt="">
 </p>
 
-
+<p align="center">🐾𐂯◞ 20+.. DNI ´ཀ`
 
 
 
