@@ -12,7 +12,7 @@
 
 ✚◞ I very rarely int first due to anxiety...૮( ´ ꒳ `)ა 
 
-  <p align="center">ﾒ◞..artist is bananabedside  twt!
+  <p align="center">ﾒ◞.
   
 I luhv LUHVVV wenclair ﾒ✚ do interact with me id love too make new friends wahhaa >.<
 ◞
