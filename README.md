@@ -5,7 +5,9 @@
 
 <p align="center">♯ BYI! (before yah int 
 
-<p align="center"><sub> I have adhd ' so pretty please be patient with me .ᐟ𐂯◞
+<p align="center"><sub> I have adhd ' so pretty please be patient w mhe <img src="https://i.postimg.cc/cCnbgCyW/Tumblr-l-919228936639251.gif" alt="" width="30">
+</p>
+
 
 
 
