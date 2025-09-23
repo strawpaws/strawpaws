@@ -5,6 +5,10 @@
 </p>
 <p align="center">◞ᛝ ------------------- ᛝ◞
 
+<p align="center">♯ BYI! (before yah int >u<)
+
+<p align="center"> i have terrible social anxiety !
+
 
 
 
