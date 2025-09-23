@@ -10,14 +10,15 @@
 <p align="center"><sub> I get very nervous to talk to people,so I would totally appreciate if you int first.ᐟ⊹ purrs..</sub>
 <p align="center"><sub>♯ DNI!<sub></sub> 
 <p align="center"><sub> weirdos.. lolicons.. problematic.. age players etc etc.. <sub></sub> 
+
+
 <p align="center">
- <p align="center">
-  <p align="center">
-  <p align="center">
-  <img src="https://i.postimg.cc/ZnbS66Hm/Tumblr-l-18355054906170.png" alt=""width="30">
+  <sub>could you maybe sign my <a href="https://strawpawsie.atabook.org">ᛝ◞ ata</a> /nf</sub>
+</p><p align="center">
+  <img src="https://i.postimg.cc/ZnbS66Hm/Tumblr-l-18355054906170.png" alt=""with=40>
 </p>
- <sub>could you maybe sign my <a href="https://strawpawsie.atabook.org">ᛝ◞ ata</a> /nf</sub> .ᐟ =^_^=
-</p>
+
+
 
 
 
