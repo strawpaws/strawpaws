@@ -5,9 +5,9 @@
 </p>
 <p align="center">◞ᛝ ------------------- ᛝ◞
 
-<p align="center">♯ BYI! (before yah int >u<)
+<p align="center">♯ BYI! (before yah int 
 
-<p align="center"> i have terrible social anxiety !
+<p align="center"><sub> I have adhd ' so pretty please be patient with me .ᐟ𐂯◞
 
 
 
