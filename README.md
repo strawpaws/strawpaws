@@ -16,7 +16,7 @@
 
 
 <p align="center">
-  <sub>could you maybe sign my <a href="https://strawpawsie.atabook.org">ᛝ◞ ata</a> /nf</sub>
+  <sub>pretty please sign my <a href="https://strawpawsie.atabook.org">ᛝ◞ ata</a> /nf</sub>
 </p><p <p align="center">
   <img src="https://i.postimg.cc/ZnbS66Hm/Tumblr-l-18355054906170.png" alt="" width="30">
 </p>
