@@ -1,3 +1,6 @@
+<p align="center">
+  <img src="https://i.postimg.cc/G2fwxXWM/Tumblr-l-83857615661535.gif" alt="Cool GIF" />
+</p>
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31m564qzigxzim7z24ic33zofjfm&cover_image=true&theme=novatorem&show_offline=false&background_color=ffffff&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 <p 
 </p>
