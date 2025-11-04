@@ -10,7 +10,10 @@
 
 <p align="center"><sub>◟ BYI!<sub></sub> 
 
-<p align="center"><sub>I have adhd ' so please be patient with me.ᐟ <img src="https://i.postimg.cc/cCnbgCyW/Tumblr-l-919228936639251.gif" alt="" width="30">
+<p align="center"><sub>I have adhd ' so please be patient with me.ᐟ 
+  <img src="https://i.postimg.cc/J0Zp6fqd/Tumblr-l-234166450409340.gif" alt="My GIF" width="25" />
+</p>
+
 </p>
 <p align="center"><sub> i get very nervous to talk to people so I would totally appreciate if you int with me first.. !  </sub>
 <p align="center"><sub>DNI!<sub></sub> 
