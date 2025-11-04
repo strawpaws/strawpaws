@@ -19,9 +19,7 @@
 
 <p align="center">
   <sub>pretty please sign my <a href="https://strawpawsie.atabook.org">.𐂯◞ ata</a> /nf</sub>
-</p><p <p align="center">
-  <img src="https://i.postimg.cc/ZnbS66Hm/Tumblr-l-18355054906170.png" alt="" width="30">
-</p>
+<img src="https://i.postimg.cc/nc2kXh9Y/Tumblr-l-83700061208295.png" alt="Image" width="100"/>
 
   
 
