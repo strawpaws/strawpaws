@@ -1,5 +1,7 @@
 <p align="center">
-  <img src="https://i.postimg.cc/G2fwxXWM/Tumblr-l-83857615661535.gif" alt="Cool GIF" />
+  <img src="https://i.postimg.cc/HkN718Cp/Tumblr-l-83857615661535.gif" alt="">
+</p>
+
 </p>
 
 <p 
