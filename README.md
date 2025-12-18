@@ -17,10 +17,12 @@
 <p align="center"><sub>DNI!<sub></sub> 
 <p align="center"><sub>  ྀི༢    ˙weirdos.. lolicons.. problematic.. age players etc etc.. <sub></sub> 
 
+   
 
 <p align="center"><sub>
-  ঌ <sub> <a href="https://github.com/Uxia-davv"><b>uxia_davv</b></a> /༏⑅
-</p>
+ pretty plese follow ঌ  <sub> <a href="https://github.com/Uxia-davv"><b>uxia_davv</b></a> /༏⑅
+</p> <p align="center">
+<sub> (๑>◡<๑)  </sub>
  
 
 
