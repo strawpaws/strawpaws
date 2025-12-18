@@ -18,8 +18,11 @@
 <p align="center"><sub>  ྀི༢    ˙weirdos.. lolicons.. problematic.. age players etc etc.. <sub></sub> 
 
 
-<p align="center">
-  <sub>pretty please sign my <a href="https://strawpawsie.atabook.org">.𐂯◞ ata</a> /nf</sub>
+<p align="center"><sub>
+  ঌ <sub> <a href="https://github.com/Uxia-davv"><b>uxia_davv</b></a> /༏⑅
+</p>
+ 
+
 
 
   
