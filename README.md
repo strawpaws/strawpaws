@@ -20,7 +20,7 @@
    
 
 <p align="center"><sub>
- pretty plese follow ঌ  <sub> <a href="https://github.com/Uxia-davv"><b>alicesgarden</b></a> /༏⑅
+ pretty plese follow ঌ  <sub> <a href="https://github.com/alicesgarden"><b>alicesgarden</b></a> /༏⑅
 </p> <p align="center">
 <sub> (๑>◡<๑)  </sub>
  
