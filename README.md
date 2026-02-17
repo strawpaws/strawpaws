@@ -18,10 +18,9 @@
 
    
 
-<p align="center"><sub>
- pretty plese follow ঌ  <sub> <a href="https://github.com/alicesgarden"><b>alicesgarden</b></a> /༏⑅
-</p> <p align="center">
-<sub> ૮꒰◞ . ◟ ྀི꒱ა  </sub>
+
+
+<p align="center"<sub> ૮꒰◞ . ◟ ྀི꒱ა  </sub>
  
 
 
