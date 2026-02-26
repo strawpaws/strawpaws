@@ -20,12 +20,12 @@
 
 
 
-   <p align="center"><sub>𓈒kins. . .</sub>  
+   <p align="center"><sub>𓈒Ӄins. . .</sub>  
 
 
 
  <p align="center"><sub>ruଓy𓈒 Kurosawa ' (the me ! !)⠀⠀ ⠀⠀ ⠀enid sinclair..
- ⠀⠀ ⠀⠀ ⠀minori hanasato ⠀⠀₎₎࿔ ⠀⠀ ⠀</sub>
+ ⠀⠀ ⠀⠀ ⠀minori hanasato ⠀⠀ ⠀⠀ ⠀Yui Hirasawa⠀⠀₎₎࿔ ⠀⠀ ⠀</sub>
 
 
 
