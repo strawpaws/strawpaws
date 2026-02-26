@@ -6,9 +6,9 @@
 
 <p align="center">
 
-<p align="center"><sub>◟   byi + dni . . <sub></sub> 
+<p align="center"><sub>◟   𓈒ଓyi + 𝒟ni . . <sub></sub> 
 
-<p align="center"><sub> am very shy , so be noted if u ever wan talk with mai !  
+<p align="center"><sub> basic dni criteria𓈒 i block veri freely ! am veri shy,  which means i prob wont interact unless u do ,, kay!!( ╥ ﹏ ╥ )                                </sub>  
   
 
 
