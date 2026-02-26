@@ -16,11 +16,11 @@
 
 <p align="center"><sub> interested in . . .</sub>  
 
+<p align="center"><sub> ੭﹕﹒love live ' madoka magica 'd4dj' needy streamer overload'⠀bandori'⠀proseka kinda.. ' k-on 'ddlc⠀'cosplaying ' art ' animanga </sub>
 
 
 
-
-   
+   <p align="center"><sub>𓈒kins. . .</sub>  
 
 
 
