@@ -7,7 +7,7 @@
   <img src="https://i.postimg.cc/JzmLst5b/c3dbc1f3ed1c4bc001e7e29a2877bd73.gif" width="230" />
 </p>
 
-<p align="center">
+<p align="center">𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
 
 <p align="center"><sub>◟   𓈒ଓyi + 𝒟ni . . <sub></sub> 
 
@@ -17,13 +17,13 @@
 
 
 
-<p align="center"><sub> interested in . . .</sub>  
+<p align="center"><sub> interested in  𓈒 𓈒 𓈒 </sub>  
 
-<p align="center"><sub> ੭﹕﹒lovelive ' madoka magica 'd4dj' ranfren' needy streamer overload'⠀bandori'⠀proseka kinda.. ' k-on 'ddlc⠀'cosplaying ' art ' animanga </sub>
+<p align="center"><sub> ⠀  ⠀lovelive⠀  ⠀ madoka magica⠀  ⠀ d4dj⠀  ⠀  ranfren⠀  ⠀ needy streamer overload⠀  ⠀bandori⠀  ⠀⠀proseka kinda..⠀  ⠀  k-on⠀  ⠀ ddlc⠀  ⠀⠀cosplaying⠀  ⠀ art  animanga </sub>
 
 
 
-   <p align="center"><sub>𓈒Ӄins. . .</sub>  
+   <p align="center"><sub>𓈒Ӄins</sub>  
 
 
 
