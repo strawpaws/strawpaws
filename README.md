@@ -19,7 +19,7 @@
 
 <p align="center"><sub> interested in  𓈒 𓈒 𓈒 </sub>  
 
-<p align="center"><sub> ⠀  ⠀lovelive⠀  ⠀ madoka magica⠀  ⠀ d4dj⠀  ⠀  ranfren⠀  ⠀ needy streamer overload⠀  ⠀bandori⠀  ⠀⠀proseka kinda..⠀  ⠀  k-on⠀  ⠀ ddlc⠀  ⠀⠀cosplaying⠀  ⠀ art  animanga </sub>
+<p align="center"><sub> ⠀  ⠀lovelive⠀  ⠀ madoka magica⠀  ⠀ d4dj⠀  ⠀  ranfren⠀  ⠀ needy streamer overload⠀  ⠀bandori⠀  ⠀⠀proseka kinda..⠀  ⠀  k-on⠀  ⠀ ddlc⠀  ⠀⠀cosplaying⠀  ⠀ art⠀  ⠀  animanga </sub>
 
 
 
