@@ -9,7 +9,7 @@
 
 <p align="center">𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
 
-<p align="center"><sub>◟   𓈒ଓyi + 𝒟ni . . <sub></sub> 
+<p align="center"><sub>◟   𓈒ଓyi + 𝒟ni  𓈒 𓈒 𓈒  <sub></sub> 
 
 <p align="center"><sub> basic dni criteria𓈒⠀i block  freely !⠀am veri shy, ⠀  ⠀i prob wont interact unless u do ,, kay!! ⠀                                   
 
@@ -19,16 +19,16 @@
 
 <p align="center"><sub> interested in  𓈒 𓈒 𓈒 </sub>  
 
-<p align="center"><sub> ⠀  ⠀lovelive⠀  ⠀ madoka magica⠀  ⠀ d4dj⠀  ⠀  ranfren⠀  ⠀ needy streamer overload⠀  ⠀bandori⠀  ⠀⠀proseka kinda..⠀  ⠀  k-on⠀  ⠀ ddlc⠀  ⠀⠀cosplaying⠀  ⠀ art⠀  ⠀  animanga </sub>
+<p align="center"><sub> ⠀  ⠀lovelive⠀  ⠀ madoka magica⠀  ⠀ d4dj⠀  ⠀  ranfren⠀  ⠀ needy streamer overload⠀  ⠀bandori⠀  ⠀⠀proseka kinda⠀  ⠀  k-on⠀  ⠀ ddlc⠀  ⠀⠀cosplaying⠀  ⠀ art⠀  ⠀  animanga </sub>
 
 
 
-   <p align="center"><sub>𓈒Ӄins</sub>  
+   <p align="center"><sub>Ӄins 𓈒 𓈒 𓈒 </sub>  
 
 
 
- <p align="center"><sub>ruଓy𓈒 Kurosawa ' (the me ! !)⠀⠀ ⠀⠀ ⠀enid sinclair..
- ⠀⠀ ⠀⠀ ⠀minori hanasato ⠀⠀ ⠀⠀ ⠀Yui Hirasawa⠀⠀₎₎࿔ ⠀⠀ ⠀</sub>
+ <p align="center"><sub>ruଓy𓈒 kurosawa  (the me ! !)⠀⠀ ⠀⠀ ⠀enid sinclair
+ ⠀⠀ ⠀⠀ ⠀minori hanasato ⠀⠀ ⠀⠀ ⠀yui hirasawa⠀⠀ ⠀⠀ ⠀</sub>
 
 
 
