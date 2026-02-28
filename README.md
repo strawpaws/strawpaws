@@ -27,8 +27,8 @@
 
 
 
- <p align="center"><sub>ruଓy𓈒 kurosawa  (the me ! !)⠀⠀ ⠀⠀ ⠀enid sinclair
- ⠀⠀ ⠀⠀ ⠀minori hanasato ⠀⠀ ⠀⠀ ⠀yui hirasawa⠀⠀ ⠀⠀ ⠀</sub>
+ <p align="center"><sub> ⠀⠀ ruଓy𓈒 kurosawa  ( oshi ! ! )⠀⠀ ⠀minori hansatao 
+ ⠀⠀ ⠀  ⠀ ⠀enid sinclair ⠀⠀ ⠀⠀ ⠀yui hirasawa⠀⠀ ⠀⠀ ⠀</sub>
 
 <p align="center"><img src="https://komarev.com/ghpvc/?username=strawpaws&color=D16775&label=੭﹕﹒"੭﹕﹒" />
 
