@@ -9,7 +9,9 @@
 
 <p align="center">𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
 
-<p align="center"><sub>◟   𓈒ଓyi + 𝒟ni  𓈒 𓈒 𓈒  <sub></sub> 
+<p align="center">
+  <sub style="color:#CBE5F6;">◟   byi + dni </sub>
+</p> 
 
 <p align="center"><sub> basic dni criteria𓈒⠀i block  freely !⠀am veri shy, ⠀  ⠀i prob wont interact unless u do ,, kay!! ⠀                                   
 
