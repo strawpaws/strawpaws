@@ -13,7 +13,7 @@
   <sub style="color:#CBE5F6;">  ꒰ byi + dni ꒱ </sub>
 </p> 
 
-<p align="center"><sub> mah dni list consists of the basic criteria  ,  am very shy and anxious  .. okasiee.⠀                                   
+<p align="center"><sub> mah dni list consists of the basic criteria  ,  am very shy .. okasiee.  do int thouu id love to make new friendsies ^ p ^
 
 
 
