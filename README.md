@@ -4,7 +4,7 @@
 </p>
 
 <p align="center">
-  <img src="https://i.postimg.cc/JzmLst5b/c3dbc1f3ed1c4bc001e7e29a2877bd73.gif" width="230" />
+  <img src="https://i.postimg.cc/FRcxpfCB/Untitled185-20260325012219.png" />
 </p>
 
 
