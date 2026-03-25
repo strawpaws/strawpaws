@@ -4,7 +4,7 @@
 </p>
 
 <p align="center">
-  <img src="https://i.postimg.cc/WbQgWpgR/Untitled169-20260325013926.png/>
+  <img src="https://files.catbox.moe/st04yo.png"/>
 </p>
 
 
