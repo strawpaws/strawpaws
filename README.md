@@ -2,12 +2,12 @@
 <p align="center">
   <img src=https://i.postimg.cc/76Rz8KFg/tumblr-6aaa29441835b20632f21c3a47816dbf-e245393c-250.gif>
 </p>
-<p align="center">𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏
+
 <p align="center">
   <img src="https://i.postimg.cc/JzmLst5b/c3dbc1f3ed1c4bc001e7e29a2877bd73.gif" width="230" />
 </p>
 
-<p align="center">𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
+
 
 <p align="center">
   <sub style="color:#CBE5F6;">◟   byi + dni </sub>
