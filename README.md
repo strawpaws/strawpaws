@@ -28,7 +28,7 @@
 
 
  <p align="center"><sub> ⠀⠀ ruଓy𓈒 kurosawa  ( kamioshi ! ! )⠀⠀ ⠀minori hansatao 
- ⠀⠀ ⠀  ⠀     ⠀enid sinclair ⠀⠀ ⠀⠀ ゛⠀yui hirasawa⠀⠀𓈒 ⠀⠀ ⠀</sub>
+ ⠀⠀ ⠀  ⠀     ⠀enid sinclair ⠀⠀ ⠀⠀ ゛⠀yui hirasawa⠀⠀𓈒  sayaka  miki ⠀ ⠀</sub>
 
 <p align="center"><img src="https://komarev.com/ghpvc/?username=strawpaws&color=D16775&label=੭﹕﹒"੭﹕﹒" />
 
