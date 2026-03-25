@@ -10,10 +10,10 @@
 
 
 <p align="center">
-  <sub style="color:#CBE5F6;">◟   byi + dni </sub>
+  <sub style="color:#CBE5F6;">   byi + dni </sub>
 </p> 
 
-<p align="center"><sub> basic dni criteria𓈒⠀i block  freely !⠀am veri shy, ⠀  ⠀i prob wont interact unless u do ,, kay!! ⠀                                   
+<p align="center"><sub> basic dni criteria , i block very freely ^ p ^ am very shy so i almost never int firs.. ok... okai ⠀                                   
 
 
 
