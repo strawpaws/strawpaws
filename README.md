@@ -19,9 +19,7 @@
 
 
 
-<p align="center"><sub> interested in  𓈒 𓈒 𓈒 </sub>  
 
-<p align="center"><sub> ⠀  ⠀lovelive⠀  ⠀ madoka magica⠀  ⠀ d4dj⠀  ⠀  ranfren⠀  ⠀ needy streamer overload⠀  ⠀bandori⠀  ⠀⠀proseka kinda⠀  ⠀  k-on⠀  ⠀ ddlc⠀  ⠀⠀cosplaying⠀  ⠀ art⠀  ⠀  animanga </sub>
 
 
 
@@ -35,6 +33,8 @@
 <p align="center"><img src="https://komarev.com/ghpvc/?username=strawpaws&color=D16775&label=੭﹕﹒"੭﹕﹒" />
 
 
+<p align="center">
+  <img src=https://files.catbox.moe/1njlw9.gif>
   
 
 
