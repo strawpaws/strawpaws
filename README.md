@@ -1,10 +1,10 @@
 
 <p align="center">
-  <img src=https://i.postimg.cc/76Rz8KFg/tumblr-6aaa29441835b20632f21c3a47816dbf-e245393c-250.gif>
+  <img src="https://i.postimg.cc/Qdk73PDp/Tumblr-l-414668997018791.png">
 </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/st04yo.png"/>
+  <img src="https://i.postimg.cc/sX1G5ghw/Untitled228-20260422142314.png"/>
 </p>
 
 
