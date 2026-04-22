@@ -1,8 +1,9 @@
-
+<p align="center">
+  <img src=https://i.postimg.cc/Z5Gswmyc/Untitled232-20260422172326.jpg>
 
 
 <p align="center">
-  <sub style="color:#CBE5F6;">   byi + dni  </sub>
+  <sub style="color:#BCB0FF;">   byi + dni  </sub>
 </p> 
 
 <p align="center"><sub> mah dni list consists of the basic criteria  ,  am very shy .. okasiee.  do int thouu id love to make new friendsies 
