@@ -26,7 +26,7 @@
 
 
 <p align="center">
-  <img src=https://i.postimg.cc/rpxJ0Dg2/Tumblr-l-641678217635399.gif>
+  <img src=https://files.catbox.moe/3hqfcp.jpg>
   
 
 
