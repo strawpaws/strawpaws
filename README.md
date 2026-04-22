@@ -1,5 +1,4 @@
-<p align="center">
-  <img src=https://files.catbox.moe/6ceugz.png>
+
 <p align="center">
   <img src=https://files.catbox.moe/sji343.png>
 
@@ -27,7 +26,7 @@
 
 
 <p align="center">
-  <img src=https://files.catbox.moe/1m2kn6.jpg>
+  <img src=https://i.postimg.cc/rpxJ0Dg2/Tumblr-l-641678217635399.gif>
   
 
 
