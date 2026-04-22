@@ -1,7 +1,7 @@
 <p align="center">
   <img src=https://files.catbox.moe/6ceugz.png>
 <p align="center">
-  <img src=https://i.postimg.cc/Z5Gswmyc/Untitled232-20260422172326.jpg>
+  <img src=https://files.catbox.moe/sji343.png>
 
 
 <p align="center">
