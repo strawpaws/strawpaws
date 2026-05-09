@@ -23,7 +23,7 @@
 
 
 
-<p align="center"><img src="https://komarev.com/ghpvc/?username=strawpaws&color=000000&label=੭﹕﹒"੭﹕﹒" />
+<p align="center"><img src="https://komarev.com/ghpvc/?username=strawpaws&color=F7DAF7&label=੭﹕﹒" ꒰´ ᗜ｀𓈒ྀི ꒱" />
 
 
 <p align="center">
